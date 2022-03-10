@@ -7,7 +7,7 @@
 
 </p>
 <p align="center">
-<img src="https://c.tenor.com/oyboaxLgcNkAAAAd/maths-lz.gif" width="500">
+<img src="https://c.tenor.com/V71SmWqyYHkAAAAC/kermit-freaking.gif" width="500">
 <p/>
 
 ---
