@@ -1,6 +1,7 @@
 ## ft_statistics :
 
 > “There are three types of lies -- lies, damn lies, and statistics.”
+
 > “A single death is a tragedy; a million deaths is a statistic.”.
 
 ---
